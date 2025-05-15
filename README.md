@@ -1,1 +1,1 @@
-plz 10 points :D
+plz max points :D
